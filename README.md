@@ -1,1 +1,1 @@
-Link to notion archive : https://www.notion.so/Fruntier-3349f22ad7d84c8ca3660de5af5dba38?pvs=4
+Link to notion archive : https://kaput-aquarius-805.notion.site/Fruntier-ffa0682969dc48ae8dd55731a052ebde
